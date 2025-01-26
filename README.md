@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Web development
 - 💞️ I’m looking to collaborate on Me
-- 📫 Always I was In Active
+- 📫 Always I was Active
 - 😄 Information Is Wealth
 - ⚡ Fun fact: I am In Coding
 
